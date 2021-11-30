@@ -1,2 +1,2 @@
 # aarontran0615.github.io
-T
+This is a map of my favorite destinations.
